@@ -3,5 +3,5 @@
 - 🌱 I’m currently learning HTML, CSS, Javascript and React Native
 - 💞️ I’m looking to collaborate on anything, really.
 - 📫 How to reach me:
-  Email : write2johnjoseph@gmail.com
-  Discord : TheStorm (Star/Platinum)#2885
+  * Email : write2johnjoseph@gmail.com
+  * Discord : TheStorm (Star/Platinum)#2885
