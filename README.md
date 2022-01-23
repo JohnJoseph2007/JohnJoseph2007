@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on anything, really.
 - 📫 How to reach me:
   Email : write2johnjoseph@gmail.com
-  Discord : JohnJoseph#4770
+  Discord : TheStorm (Star/Platinum)#2885
